@@ -1,5 +1,5 @@
 # hello-world
-text degeaba...
+
 azi am fost la sala sa fac cycling. a fost pretty nice. 
 dupa am facut putin core.
 
